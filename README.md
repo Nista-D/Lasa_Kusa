@@ -1,3 +1,2 @@
-# Lasa_Kusa
 
 
